@@ -38,7 +38,7 @@
 
 ### 📫 Connect with Me
 
-- 💼 [LinkedIn](www.linkedin.com/in/gunjan-jaiswal-96669825b)
+- 💼 [LinkedIn](https://www.linkedin.com/in/gunjan-jaiswal-96669825b/)
 - 📧 Email: gunjanjaiswal2003@gmail.com
 
 ---
